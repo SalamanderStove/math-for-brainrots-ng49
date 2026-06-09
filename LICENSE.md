@@ -1,4 +1,4 @@
-#  
+#  Experience math for brainrots like never before with new math for brainrots Scripts, the #1 Script. Includes infinite resources and auto-upgrade for
 
 
 
